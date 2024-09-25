@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi, there..!! My name is Aniket and I am.......<br><br>I do the coding...nothing more<br><br>Indian..
+Hi, there..!! My name is Aniket and I am.......<br><br>I do the coding...nothing more<br><br>India..
 
 
 ## 🌐 Socials:
